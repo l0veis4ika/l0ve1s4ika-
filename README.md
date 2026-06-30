@@ -8,6 +8,6 @@
 
 https://sweetconfettimaniacs.straw.page/
 
-![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce)
+![](https://komarev.com/ghpvc/?username=tl0ve1s4ika&color=d380ce&label=+++PASTRIES++ORDERED+++&abreviated=true)
 
 ![hello](https://cdn.discordapp.com/attachments/1497932638353363017/1520436657453662320/Untitled337_20260627163132.png?ex=6a41307b&is=6a3fdefb&hm=127c6cac0a0f332e8e7ef9eb1a0894740644d0d7b1caa544cc0f755b76eb4e8a&)
